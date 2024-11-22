@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @priyanshpasari08
-- 👀 I’m interested in Video Editing and Graphic Designing
-- 🌱 I’m currently learning Video Editing and Graphic Designing
+- 👀 I’m interested in Video Editing, Graphic Designing, AI, and Gaming
+- 🌱 I’m currently learning Video Editing, Graphic Designing and AI
 - 📫 To reach me, DM on my instagram @priyansh.pasari08
 - 😄 Pronouns: his/him
 
